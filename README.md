@@ -1,5 +1,3 @@
-## Hi there 👋
-
-I'm tifosi🏎（16）
+![image](https://github.com/Man1cplus/Man1cplus/blob/main/ai.png)
 
 
